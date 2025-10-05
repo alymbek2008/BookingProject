@@ -1,11 +1,5 @@
-fd vjdf vjv j vj vars(r j j vv
- jkbkj   krjgbnen
-vkjnkjenk
-rnegnioeng
-gnoieoen errnorrnelnegr
-rginrognrk
-errnorekr r lkgnerngr
-mknnergjnerkjre reversedrk nklgkjgrr reversedrl
-mglnlgrngnkeg ekngken erkngken krjngkjg k getattr(mglkren
-                                                  gmkmge
-ngkng rmgm rjngoen jrnkng  ))
+34 342342379 565787575
+489237483
+('346872368 '
+ '4692497 ')
+487347b 
